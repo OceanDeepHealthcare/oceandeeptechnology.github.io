@@ -1,1 +1,1 @@
-# oceandeeptechnology.github.io
+# oceandeeptechnologies.github.io
